@@ -6,9 +6,6 @@ modifiche del collega
 
 nostre modifiche
 
-modifiche del collega ancora
-altre modifiche
-
 hahahhahahha
 
 hahahahahahhhhaha
